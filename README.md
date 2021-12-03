@@ -12,3 +12,7 @@ You can find me on YouTube, search "_Chris Joseph Ableton_".
 Chris Joseph on LinkedIn
 @humanitysdaddy on SoundCloud, Twitter, IG
 
+Subscribe to me on Youtube!!!! 
+
+https://www.youtube.com/c/chrisjosephyt
+
