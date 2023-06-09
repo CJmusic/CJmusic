@@ -7,6 +7,7 @@ I'm currently working on:
   - Audio Engineer and Guitar Player at INSPIRE360 Church 
   - Musician, find my EP Medication Generation on all major streaming platforms! 
   - APCJ40_MKII: a custom Ableton Remote Script for the Akai APC40 MkII
+  - [cjmusic.github.io](cjmusic.github.io): my personal website and blog
   - more... 
 
 I'm actively looking for collaborators and open source projects to contribute to.
